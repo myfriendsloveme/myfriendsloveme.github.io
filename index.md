@@ -1,37 +1,10 @@
-## Welcome to GitHub Pages
+## March 18, 2019
+### Mental Pain: 9.5 Physical Pain: 7
 
-You can use the [editor on GitHub](https://github.com/myfriendsloveme/myfriendsloveme.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+I panicked hard today. So, I reached out to a few friends on the phone and spam messaged a few others. And guess what? They all happen to love me. My genius soon-to-be-doctor friend, Niki, told me to keep track of levels of mental and physical pain daily. Hence, the numbers followed by the date. My angelic friend, Bri, writes so beautifully. Her writing makes me cry often. She inspired me to add some body of text followed by the numbers. Her twin brother, Nick, is a role model for me. He's moving to a new apartment with his finacee soon, and I showed my excitement for his new chapter in life. My ever-hilarious, optimist friend, Hewett, took time out of his busy work schedule to play a childish mobile game with me. That was so kind of him. My sweet friend, Julian, is gay. He was the last person I talked to today. He wants to me check out a therapist messaging service that I don't necessarily trust.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+I suffered a severe back muscle spasm exactly 8 days ago. I still haven't recovered from it. I've been going to a series of doctor's appointments and started attending physical therapy. I have to say, I don't really like my physical therapist, Brandon (I can't remember if that's even his name). 
 
-### Markdown
+I suffer from chronic depression, but these past few weeks have really hit it hard for me. But I think that's a story for another time. This daily summary is getting too long. So I guess this is a journal, but not really because that wasn't my intention. Whatever.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/myfriendsloveme/myfriendsloveme.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+I want to get better. I want my back to heal faster, and I want to be free of this thing called depression that's haunted me all my life. I'm not sure if writing helps in any way, but I'm willing to give it a try.  
