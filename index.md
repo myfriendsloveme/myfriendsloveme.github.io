@@ -1,3 +1,9 @@
+## March 19, 2019
+### Mental Pain: 5.5 Physical Pain: 4
+
+I woke up very late today. I set the alarm for 5:30 AM, but was only able to defeat the seductiveness of my bed at 8:00 AM. That's very late for me. It's 9:20 AM now, and am anxiously waiting for the school bus to come. My mental pain is not as severe this morning. I believe I'm a bit psychologically drained. Yesterday was so full of emotions, my tiny brain is exhausted. We'll see how things will go from here. The sports doctor's appointment is at 10:05. I should be heading out now.  
+
+
 ## March 18, 2019
 ### Mental Pain: 9.5 Physical Pain: 7
 
