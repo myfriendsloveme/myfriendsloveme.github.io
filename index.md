@@ -15,7 +15,7 @@ I cried in my office this morning. My friend, Krittika, is a gentle soul and hap
 
 Once I got home, I lied in bed and stared at the ceiling for a good hour. I didn't think of anything particular. I just lied there. I was just happy that I wasn't at school and was home at a quiet place where I could rest my head and back. My cat, Billy, comforted my chest and the crotch meanwhile. After an hour of empty staring, I decided to lift. I was trying to play a mental mind trick on myself that the methylprednisolone I'm taking helps with body building. I'm a 133 lb toothpick so I need to lift and get bigger. I did 4 sets of bench press at 80 lbs. I don't remember the rep count. I sucked. 
 
-[3:35 PM] I decided that I should start time stamping to organzie thoughts chronologically. When I'm writing, I'm like a kid on adderall. I just write whatever pops into my head. Like. I'm gonna write about how I'm expecting a call from Niki at 5:00 PM. I'm expecting a call from Niki at 5:00 PM. 
+[3:35 PM] I decided that I should start time stamping to organzie thoughts chronologically. When I'm writing, I'm like a kid on adderall. I just write whatever pops into my head. Like. I'm gonna write about how I'm expecting a call from Niki at 5:00 PM. I'm expecting a call from Niki at 5:00 PM. I think I'm gonna walk around a bit before the phone call. It's nice outside. 
 
 ## March 19, 2019
 ### Mental Pain: 5.5 Physical Pain: 4
