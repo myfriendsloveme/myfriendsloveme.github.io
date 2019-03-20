@@ -3,6 +3,15 @@
 
 I woke up very late today. I set the alarm for 5:30 AM, but was only able to defeat the seductiveness of my bed at 8:00 AM. That's very late for me. It's 9:20 AM now, and am anxiously waiting for the school bus to come. My mental pain is not as severe this morning. I believe I'm a bit psychologically drained. Yesterday was so full of emotions, my tiny brain is exhausted. We'll see how things will go from here. The sports doctor's appointment is at 10:05. I should be heading out now.  
 
+This new doc turned to be my new favorite person. She was late to my appointment, but she was quick, punctual, very knowledgeable and attractive. The last characterization is always a plus no matter who you are. She told me to stop taking muscle relaxers and ditch the physical therapy. I was ecstatic to hear that since I never got along with Brandon (is that his name?) to begin with. Instead, she prescribed some bomb-ass steroids (I don't know the real clinical name of the drug) to treat what I finally know my problem as "lumbar strain." My mood has really uplifted since the minute I swallowed them delicious tablets. I didn't arrive at the verge of tears by the the time 4 o'clock rolled around like yesterday, and I had enough energy left to continue tutoring kids. Pain has been manageable all day. 
+
+During the tutoring hours, I talked to the girl who has been one of my deepest sources of depression. I was worried she wouldn't talk to me. We had a very friendly small chat. I think that constitutes as a happy closure in our acquaintanceship. That felt alright and now I don't have to worry about her hating me eternally.
+
+Another thing that I did today was e-mail my old therapist. I sent her an e-mail asking if she offered counseling over vitual conferencing. I have yet to hear back from her. I loved Michele. She knew all about my fucked up history, like how I had a fetish for girls in relationships, my burgenoning drinking problems and how I was molested in 1st grade.
+
+I got home at 6:00 PM and noticed that my Washburn is depressed too. Well. I guess I don't play him as much as I used to, so he's obviously lonely. I only know and compose sad, four-chord songs, so I figured it's not good for my sanity to continue my relationship with him. Besides, I can't muster any strength on my fingertips to hold down 'em dirty-old-perverted steel strings. And I don't have the drive to learn new chord progressions. I've been hoping to learn Jazz guitar, but I just suck at life right now.
+
+Overall, I felt today was a good day. I regained some of my sanity and strength. I'm starting to speculate that maybe the physical pain in one's body is a huge, if not, the driving factor in one's mental pain. Maybe. 
 
 ## March 18, 2019
 ### Mental Pain: 9.5 Physical Pain: 7
