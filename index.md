@@ -1,8 +1,31 @@
+## March 23, 2019
+### Mental Pain: 2 Physical Pain: 3.0
+
+[12:59 PM] I'm at a cafe. It's really the only cafe I go to that's not on campus. It's close from home, and you have to cross a really cute bridge to get there. Coffee happens to be cheap, so that's an added perk. My mental pain went up this morning. As expected, yesterday was just a day. I hadn't weathered the storm, and the "sun" was just a tease in the clouds. The uncontrollable happiness was probalby just a side effect of the steroid. I'm in the tapering phase of the prescription right now, so I feel the effect of steroid less and less. Perhaps that's why mental pain has gone up. It seems like an inverse relationship.ad 
+I'm not happy that my muscles haven't healed yet. There is still a non-insignificant amount of pain in the back, and I worry that this may become a chronic condition. I have a permanently messed up right shoulder because I was in a fight once. And when I say fight, I don't mean the one where both parties beat the crap out of each other until one comes out on top. I mean the one where one guy lets the other guy punch him until the guy who didn't throw punches falls down. I was that one guy. It was at a pickup hockey game in 2016, when an idiot decided to attack me for no reason, and I decided to practice Penn Jillette's extreme pacifism. I ate punches and walked out feeling proud for my abstience from retaliation. That's how I ended up with a permanently damaged shoulder. I hope I don't end up with a permanently damaged back. Hunchbacks just aren't cool at all. 
+
+Elaborating on the mental pain, I feel that I've fallen into the attractor of guilt once again. The cycle of regret that has tormented me for weeks now. Endlessly reminding myself of the shame and guilt of being a "less than a decent man." Endlessly dreaming of new sequences of events that would have avoided all the pain and turmoil. Endlessly imaging things that will never come true. 
+
+It's hard to break out of the cycle. No. I don't know if I ever can and will as long as the climate is still "stormy." I did develop a few techniques to temporarily over come the attractor though. I read and reread Jocko's poem over and over again. And then, I read out loud my daily reminders:
+
+>  _No mas_
+
+>  Be kinder
+
+>  Be stronger
+
+>  Tell your friends you love them
+
+>  Because they love you
+
+>  Determinism + Randomness
+
+Today is just another hard day. Despite the relatively low level of mental pain, it feels so much worse given the mental health peak from yesterday. We'll see where today leads me.
 
 ## March 22, 2019
 ### Mental Pain: 0.5 Physical Pain: 3.5
 
-[2:24 PM] Do I dare say that my depression is completely gone? Definitely not. But I'm in a great place right now. Much better mental place than the last few weeks. It's 55 degrees, sunny, absolutely beautiful, and I wish I could share with the whole world. I'm soaking up the sun in my balcony area, sitting on a chair that's called "wicker" chair. It's a southern style wooden chair with a back support that is woven from wicker material. My feet are resting on a dusty trash can. All at the same time, I'm sipping on some canned, pink grapefruit Perrier in between typing. Is this what happiness is? I don't know, but I feel good. Amazingly good. It's only one day, but I feel like I found the metaphorical sun Jocko was referring to. I've weathered the storm. And now, I'm enjoying my Sunday just typing away. What has changed? I wish I knew. 
+[2:24 PM] Do I dare say that my depression is completely gone? Definitely not. But I'm in a great place right now. Much better mental place than the last few weeks. It's 55 degrees, sunny, absolutely beautiful, and I wish I could share with the whole world. I'm soaking up the sun in my balcony, sitting on something called "wicker" chair. It's a southern style wooden chair with a back support that is woven from wicker material. My feet are resting on a dusty trash can. I'm also sipping on some canned, pink grapefruit Perrier in between typing. Is this what happiness is? I don't know, but I feel good. Amazingly good. It's only one day, but I feel like I found the metaphorical "sun" Jocko was referring to. I've weathered the storm. And now, I'm enjoying my day just typing away. What has changed? I wish I knew. 
 
 I'm still having a hard time focusing though. I believe the steroid is the main culprit. My brain is operating at the speed of light, and I can't formulate sentences that are longer than 10 words. Plus, the back pain is still there. It's odd. I would've bet all of my life's savings that I would've started recovering from the physical injury faster than the metnal one. Now, I'm not saying that I'm healed. I don't doubt for a second that the storm will come back later today or sometime this weekend, when I'm alone. But all I want to do right now is just enjoy my little moment of sun. And in 10 minutes, I will head out for a quick skate, possibily for the last time this season. Spring is here.
 
