@@ -23,6 +23,8 @@ It's hard to break out of the cycle. No. I don't know if I ever can and will as 
 
 Today is just another hard day. Despite the relatively low level of mental pain, it feels so much worse given the mental health peak from yesterday. We'll see where today leads me.
 
+[3:22 PM] I can't get myself to work. Although, I'm listening to a lot of music out in the balcony again, trying to soak up some the last glimmer of sun, I guess. I changed my mental pain level from 2 to 3. Now I'm more than convinced that I didn't even come close to weathering the storm. It was just a single tornadoe gone by. I can see a bigger storm coming a mile away, and I'm terrified. 
+
 ## March 22, 2019
 ### Mental Pain: 0.5 Physical Pain: 3.5
 
