@@ -1,3 +1,8 @@
+## March 24, 2019
+### Mental Pain: 4 Physical Pain: 1.5
+
+[2:27 PM] I took the last dose of steroid this morning. I have been incredibly unhappy about the effects of the steroid the last couple days, so I'm glad it's finally over. Upon prescribing the drug, the sports doc failed to mention all the side effects that comes with this particular steroid, one of them being incredible mood swings. And I'm already addicted to depression.
+
 ## March 23, 2019
 ### Mental Pain: 3 Physical Pain: 3.0
 
