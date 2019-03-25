@@ -1,3 +1,8 @@
+## March 25, 2019
+### Mental Pain: 4 Physical Pain: 0.5
+
+[8:02 AM] I woke up with no pain this morning. Just a little sad with life. I'm supposed to be on meloxicam from now on, but I don't see the point of taking it. I have no pain. 
+
 ## March 24, 2019
 ### Mental Pain: 4 Physical Pain: 1.5
 
