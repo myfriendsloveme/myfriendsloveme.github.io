@@ -1,7 +1,9 @@
 ## March 25, 2019
-### Mental Pain: 4 Physical Pain: 0.5
+### Mental Pain: 5 Physical Pain: 1.0
 
 [8:02 AM] I woke up with no pain this morning. Just a little sad with life. I'm supposed to be on meloxicam from now on, but I don't see the point of taking it. I have no pain. 
+
+[10:41 AM] I ended up taking meloxicam. I changed my mental pain from 4 to 5 and physical pain from 0.5 to 1.0. I'm even unhappier now. There is stiffness in my lower body, and my muscles are noticeably tight. I hate admitting it, but maybe these are just signs of aging, as the sports doctor mentioned. I'm 27 now. The latter half of the twenties. I should be in the decline of peak physcial performance. It's only natural. I hate that so much.
 
 ## March 24, 2019
 ### Mental Pain: 4 Physical Pain: 1.5
