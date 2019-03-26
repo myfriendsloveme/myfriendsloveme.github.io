@@ -1,7 +1,7 @@
 ## March 25, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
-[12:21 PM] I had no time this morning to feel either pains. I had to teach in the morning and I checked into the school counseling clinic. My guy's name is Brian. He's Mr. Rogers doppelganger. Dresses exactly like him, minus the sweater. Same shoes. Kinda talks like him too. Anyway. We just did an assessment. He asked some questions, and I answered. Pretty standard stuff. One thing that bothered me about Brian is that he kept looking at his watch a bit shamelessly, but other than that, he was fine. He will be my therapist moving forward. 
+[12:21 PM] I had no time this morning to feel either pains. I had to teach in the morning and I checked into the school counseling clinic. My guy's name is Brian. He's a Mr. Rogers doppelganger. Dresses exactly like him too, minus the sweater. The sneakers are the ultimate prop. Also has the same cadence. Anyway. We just did an assessment today. He asked some questions, and I answered. Pretty standard stuff. One thing that bothered me about Brian is that he kept looking at his watch shamelessly, but other than that, he was fine. He will be my therapist moving forward. 
 
 I think I'm happy about the fact that my therapist is a guy. My old therapist was a lady, and at times I felt like I couldn't share certain things with her. I felt like I could spill anything today, so I think that's a good thing. 
 
