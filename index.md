@@ -1,4 +1,4 @@
-## March 25, 2019
+## March 26, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
 [12:21 PM] I had no time this morning to feel either pains. I had to teach in the morning and I checked into the school counseling clinic. My guy's name is Brian. He's a Mr. Rogers doppelganger. Dresses exactly like him too, minus the sweater. The sneakers are the ultimate prop. Also has the same cadence. Anyway. We just did an assessment today. He asked some questions, and I answered. Pretty standard stuff. One thing that bothered me about Brian is that he kept looking at his watch shamelessly, but other than that, he was fine. He will be my therapist moving forward. 
