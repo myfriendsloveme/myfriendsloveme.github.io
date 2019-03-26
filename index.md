@@ -5,7 +5,23 @@
 
 [10:41 AM] I ended up taking meloxicam. I changed my mental pain from 4 to 5 and physical pain from 0.5 to 1.0. I'm even unhappier now. There is stiffness in my lower body, and my muscles are noticeably tight. I hate admitting it, but maybe these are just signs of aging, as the sports doctor mentioned. I'm 27 now. The latter half of the twenties. I should be in the decline of peak physcial performance. It's only natural. I hate that so much.
 
-[5:05 PM] I talked in length with my best friend's girlfriend, Kaya. She is a dear friend of mine, who happens to receive professional therapy. She is is very knowledgeable of what I'm going through and convinced me to search for a therapist. And by this time, I was already feeling a lot of mental pain (changed fthe number from 5 to 6 now). 
+[5:05 PM] I talked in length with my best friend's girlfriend, Kaya. She is a dear friend of mine, who happens to receive professional therapy. She is is very knowledgeable of what I'm going through and convinced me to search for a therapist. And by this time, I was already feeling a lot of mental pain (changed the number from 5 to 6 now). The girl of my romantic interest, seemingly has forgiven me for the crime I committed. But now, she seems to have interest in another guy. Being a petty and jealous and awful human being that I am, this was a just a straight up crucification of mental health for me. 
+
+[11:15 PM] I spent hours talking to my friends. I had to fight the storm, so once again I relied on friends. I talked to Julian on the phone, and Google hungout with Hewett. I'm now in feeling a little better. Jealousy, anger, the storm... they all settled for a little bit. Now, I'm reminding myself the motto now. 
+
+>  _No mas_
+>
+>  Be kinder
+>
+>  Be stronger
+>
+>  Tell your friends you love them
+>
+>  Because they love you
+>
+>  Determinism + Randomness
+
+After repeating these to myself several times, I feel like I got a little better at letting things go. 
 
 ## March 24, 2019
 ### Mental Pain: 4 Physical Pain: 1.5
