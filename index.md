@@ -1,12 +1,16 @@
 ## March 28, 2019
-### Mental Pain: 4 Physical Pain: 0
+### Mental Pain: 5 Physical Pain: 0 Sleep Hours: 10:30 PM ~ 6:00 AM
 
-[6:21 AM] It's almost like I can see whether it would be a good day or a ad one.
+[8:24 AM] It's almost like I can see forsee whether I'll have a good day or a bad one. I woke up feeling the storm. Just a usual endless thoughts of regret and jealousy. 
+
+I talked to my friend Niki on the phone yesterday for our weekly mental health check-ins. She is so kind and caring. For someone who is a few years younger than, she is so much wiser and more mature. We talked about my horrendous week, dictated by the steroid. She gave me medical advice that my sports doc failed to mention. She told me to keep track of my schedule, becasuse prescriptions often have debilitating effects on the circadian rhythm. So, I'm keeping track of them now. We also talked about how to fight loneliness. Like the song by Wilco. 
+
+I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted a Kaya because of the mental pain. I haven't heard back yet.
 
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
-[Written on March 6:21 AM]
+[Written on March 6:21 AM] I didn't have a chance to write yesterday. Shame. 
 
 ## March 26, 2019
 ### Mental Pain: 1 Physical Pain: 0
