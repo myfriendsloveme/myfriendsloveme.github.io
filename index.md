@@ -41,6 +41,8 @@ I'm in class. I should be teaching, but instead I'm writing here. I'm such a shi
 
 I don't know. It sucks. But I don't know what eles I should be doing. 
 
+[3:45 PM] I was having severe anxiety and depression, so out of pure whim, I decided to open up Sam Harris' Waking Up meditation app that I hadn't used since probably last December. It was just a 10 minute guided meditation, but the effect was profound, and I'm so glad I did it. I feel calmer. More conscientous. Freer. It's embarassing that I failed to remember the stark impact meditaiton has on one's life. It's so important to take a few minutes out of your day for yourself, and meditaiton is the tool to do that. Why didn't I do this yesterday? The day before? Whenever I was feeling the storm? I look at the damn phone every single minute already! I feel like I can go on with my day now. Wow. What a change. I can't wait to meditate tomorrow.
+
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
