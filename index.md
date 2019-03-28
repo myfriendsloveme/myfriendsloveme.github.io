@@ -1,9 +1,9 @@
 ## March 28, 2019
 ### Mental Pain: 5 Physical Pain: 0 Sleep Hours: 10:30 PM ~ 6:00 AM
 
-[8:24 AM] It's almost like I can see forsee whether I'll have a good day or a bad one. I woke up feeling the storm. Just a usual endless thoughts of regret and jealousy. 
+[8:24 AM] It's almost like I can see foresee whether I'll have a good day or a bad one. I woke up feeling the storm. Just a usual endless thoughts of regret and jealousy. 
 
-I talked to my friend Niki on the phone yesterday for our weekly mental health check-ins. She is so kind and caring. For someone who is a few years younger than, she is so much wiser and more mature. We talked about my horrendous week, dictated by the steroid. She gave me medical advice that my sports doc failed to mention. She told me to keep track of my schedule, becasuse prescriptions often have debilitating effects on the circadian rhythm. So, I'm keeping track of them now. We also talked about how to fight loneliness. Like the song by Wilco. 
+I talked to my friend Niki on the phone yesterday for our weekly mental health check-ins. She is so kind and caring. For someone who is a few years younger than, she is so much wiser and more mature. We talked about my horrendous week, dictated by the steroid. She gave me medical advice that my sports doc failed to mention. She told me to keep track of my schedule, because prescriptions often have debilitating effects on the circadian rhythm. So, I'm keeping track of them now. We also talked about how to fight loneliness. Like the song by Wilco. 
 
 I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted a Kaya because of the mental pain. I haven't heard back yet.
 
@@ -21,7 +21,7 @@ I'm in class. I should be teaching, but instead I'm writing here. I'm such a shi
 >
 >  Determinism + Randomness
 
-[1:10 PM] I spent my entire linear algebra class doodling and writing a help letter to Theo Von. It goes ssomething like, 
+[1:10 PM] I spent my entire linear algebra class doodling and writing a help letter to Theo Von. It goes something like, 
 
 > Mr. Kurnatowski,
 >
@@ -35,11 +35,11 @@ I'm in class. I should be teaching, but instead I'm writing here. I'm such a shi
 >
 > I was alone, this past weekend 
 >
-> I lost my miind this past weeekend
+> I lost my mind this past weekend
 >
 > so give me that hitter on Monday.
 
-I don't know. It sucks. But I don't know what eles I should be doing. 
+I don't know. It sucks. But I don't know what else I should be doing. 
 
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
@@ -58,7 +58,7 @@ I think I'm happy about the fact that my therapist is a guy. My old therapist wa
 
 [8:02 AM] I woke up with no pain this morning. Just a little sad with life. I'm supposed to be on meloxicam from now on, but I don't see the point of taking it. I have no pain. 
 
-[10:41 AM] I ended up taking meloxicam. I changed my mental pain from 4 to 5 and physical pain from 0.5 to 1.0. I'm even unhappier now. There is stiffness in my lower body, and my muscles are noticeably tight. I hate admitting it, but maybe these are just signs of aging, as the sports doctor mentioned. I'm 27 now. The latter half of the twenties. I should be in the decline from peak physcial shape. It's only natural, and I hate that so much.
+[10:41 AM] I ended up taking meloxicam. I changed my mental pain from 4 to 5 and physical pain from 0.5 to 1.0. I'm even unhappier now. There is stiffness in my lower body, and my muscles are noticeably tight. I hate admitting it, but maybe these are just signs of aging, as the sports doctor mentioned. I'm 27 now. The latter half of the twenties. I should be in the decline from peak physical shape. It's only natural, and I hate that so much.
 
 [5:05 PM] I talked in length with my best friend's girlfriend, Kaya. She is a dear friend of mine, who happens to receive professional therapy. She is is very knowledgeable of what I'm going through and convinced me to search for a therapist. And by this time, I was already feeling a lot of mental pain (changed the number from 5 to 6 now). The girl of my romantic interest, seemingly has forgiven me for the crime I committed. But now, she seems to have interest in another guy. Being a petty and jealous and awful human being that I am, this was a just a straight up crucification of mental health for me. 
 
@@ -110,7 +110,7 @@ It's hard to break out of the cycle. No. I don't know if I ever can and will as 
 
 Today is just another hard day. Despite the relatively low level of mental pain, it feels so much worse given the mental health peak from yesterday. We'll see where today leads me.
 
-[3:22 PM] I can't get myself to work. Although, I'm listening to a lot of music out in the balcony again, trying to soak up some of the last glimmer of sun, I guess. I changed my mental pain level from 2 to 3. Now I'm more than convinced that I didn't even come close to weathering the storm. It was just a single tornadoe gone by. I can see a bigger storm coming a mile away, and I'm terrified. 
+[3:22 PM] I can't get myself to work. Although, I'm listening to a lot of music out in the balcony again, trying to soak up some of the last glimmer of sun, I guess. I changed my mental pain level from 2 to 3. Now I'm more than convinced that I didn't even come close to weathering the storm. It was just a single tornado gone by. I can see a bigger storm coming a mile away, and I'm terrified. 
 
 ## March 22, 2019
 ### Mental Pain: 0.5 Physical Pain: 3.5
