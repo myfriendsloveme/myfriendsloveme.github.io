@@ -21,6 +21,26 @@ I'm in class. I should be teaching, but instead I'm writing here. I'm such a shi
 >
 >  Determinism + Randomness
 
+[1:10 PM] I spent my entire linear algebra class doodling and writing a help letter to Theo Von. It goes ssomething like, 
+
+> Mr. Kurnatowski,
+>
+> Tell me it's going to be okay
+> 
+> Tell me it's okay to be human
+>
+> Because I can't stop being sad.
+>
+> Mr. Kurnatowski,
+>
+> I was alone, this past weekend 
+>
+> I lost my miind this past weeekend
+>
+> so give me that hitter on Monday.
+
+I don't know. It sucks. But I don't know what eles I should be doing. 
+
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
