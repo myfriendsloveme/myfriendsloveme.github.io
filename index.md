@@ -7,6 +7,20 @@ I talked to my friend Niki on the phone yesterday for our weekly mental health c
 
 I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted a Kaya because of the mental pain. I haven't heard back yet.
 
+[11:14 AM] The storm is strong at the moment. I don't know what to do in my office other than feeling hopeless. Gotta say my prayer to myself:
+
+>  _No mas_
+>
+>  Be kinder
+>
+>  Be stronger
+>
+>  Tell your friends you love them
+>
+>  Because they love you
+>
+>  Determinism + Randomness
+
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
