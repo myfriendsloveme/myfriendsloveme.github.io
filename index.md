@@ -1,3 +1,13 @@
+## March 28, 2019
+### Mental Pain: 4 Physical Pain: 0
+
+[6:21 AM] It's almost like I can see whether it would be a good day or a ad one.
+
+## March 27, 2019
+### Mental Pain: 1 Physical Pain: 0
+
+[Written on March 6:21 AM]
+
 ## March 26, 2019
 ### Mental Pain: 1 Physical Pain: 0
 
