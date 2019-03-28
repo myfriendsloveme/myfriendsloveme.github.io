@@ -66,7 +66,7 @@ After repeating these to myself, I feel like I got a little better at letting th
 [4:30 PM] I napped, woke up, walked to the cafe, had a scone, and came back. It's my desperate attempt to spark and motivate myself to work. Oof. I don't think the storm is going away any time soon. But I feel calmer than this morning. It's probably because I took a nap. I don't know. 
 
 ## March 23, 2019
-### Mental Pain: 3 Physical Pain: 3.0
+### Mental Pain: 3 Physical Pain: 3
 
 [12:59 PM] I'm at a cafe. It's really the only cafe I go to that's not on campus. It's close from home, and you have to cross a really cute bridge to get there. Coffee happens to be cheap, so that's an added perk. My mental pain went up this morning. As expected, yesterday was just a day. I hadn't weathered the storm, and the "sun" was just a tease in the clouds. The uncontrollable happiness was probably just a side effect of the steroid. I'm in the tapering phase of the prescription right now, so I feel the effect of steroid less and less. Perhaps that's why mental pain has gone up. There seems to be an inverse relationship.
 
