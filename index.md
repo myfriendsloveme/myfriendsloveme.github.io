@@ -1,3 +1,14 @@
+## March 29, 2019
+### Mental Pain: 1.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 5:30 AM
+
+[10:31 AM] My beautiful, kind, and caring friend Kaya called me last night. It was the highlight of my night. She called to just check in on things, and my mental health. She is someone who I can relate to on many levels, with chronic depression and anxiety. And it's thanks to her, that I finally decided to reach out for professional help this week. We talked for an hour about everything from my mental health, the nightmare of sequence of events that resulted in my deep-seated depression, my Mr.Rogers therapist, her future plans with her boyfriend (who is my best friend), and his improving cooking skills. It was just a perfect conversation that I desperately needed. I just felt an immense amount of gratitude and it brought colors to my world. Despite the best efforts, sometimes you forget how lucky you are to have friends who love you. I should be grateful and honor their love by loving them back. Endlessly! I could burst out in tears at any moment right now. 
+
+I guess today's theme is gratitude. Here's a passage from Sam Harris' meditation app lesson(?) on gratitude that I really like (I listened to it over and over again this morning!)
+>
+> There are at least a billion people on earth at this moment who would consider their prayers answered if they could trade places with you. There are at least a billion people who are suffering debilitating pain, or political oppression, or the acute stages of bereavement.
+>
+> To have your health—even just sort-of. To have friends—even only a few. To have hobbies or interests, and the freedom to pursue them. To have spent this day free from some terrifying encounter with chaos is to be lucky. Just look around you, and take a moment to feel how lucky you are. You get another day to live on this earth. Enjoy it.
+
 ## March 28, 2019
 ### Mental Pain: 5 Physical Pain: 0 Sleep Hours: 10:30 PM ~ 6:00 AM
 
@@ -5,7 +16,7 @@
 
 I talked to my friend Niki on the phone yesterday for our weekly mental health check-ins. She is so kind and caring. For someone who is a few years younger than, she is so much wiser and more mature. We talked about my horrendous week, dictated by the steroid. She gave me medical advice that my sports doc failed to mention. She told me to keep track of my schedule, becasuse prescriptions often have debilitating effects on the circadian rhythm. So, I'm keeping track of them now. We also talked about how to fight loneliness. Like the song by Wilco. 
 
-I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted a Kaya because of the mental pain. I haven't heard back yet.
+I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted Kaya because of the mental pain. I haven't heard back yet.
 
 [11:14 AM] The storm is strong at the moment. I don't know what to do in my office other than feeling hopeless. Gotta say my prayer to myself:
 
