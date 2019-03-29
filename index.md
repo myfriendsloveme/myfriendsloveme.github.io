@@ -3,7 +3,7 @@
 
 [10:31 AM] My beautiful, kind, and caring friend Kaya called me last night. It was the highlight of my night. She called to just check in on things, and my mental health. She is someone who I can relate to on many levels, with chronic depression and anxiety. And it's thanks to her, that I finally decided to reach out for professional help this week. We talked for an hour about everything from my mental health, the nightmare of sequence of events that resulted in my deep-seated depression, my Mr.Rogers therapist, her future plans with her boyfriend (who is my best friend), and his improving cooking skills. It was just a perfect conversation that I desperately needed. I just felt an immense amount of gratitude and it brought colors to my world. Despite the best efforts, sometimes you forget how lucky you are to have friends who love you. I should be grateful and honor their love by loving them back. Endlessly! I could burst out in tears at any moment right now. 
 
-I guess today's theme is gratitude. Here's a passage from Sam Harris' meditation app lesson(?) on gratitude that I really like (I listened to it over and over again this morning!)
+I guess today's theme is gratitude. Here's a passage from one of Sam Harris' meditation app lessons on gratitude that I really like (I listened to it over and over again this morning!)
 >
 > There are at least a billion people on earth at this moment who would consider their prayers answered if they could trade places with you. There are at least a billion people who are suffering debilitating pain, or political oppression, or the acute stages of bereavement.
 >
