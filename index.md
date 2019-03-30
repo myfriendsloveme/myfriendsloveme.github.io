@@ -1,3 +1,26 @@
+## March 29, 2019
+### Mental Pain: 1.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 5:30 AM
+
+[10:31 AM] My beautiful, kind, and caring friend Kaya called me last night. It was the highlight of my night. She called to just check in on things, and my mental health. She is someone who I can relate to on many levels, with chronic depression and anxiety. And it's thanks to her, that I finally decided to reach out for professional help this week. We talked for an hour about everything from my mental health, the nightmare of sequence of events that resulted in my deep-seated depression, my Mr.Rogers therapist, her future plans with her boyfriend (who is my best friend), and his improving cooking skills. It was just a perfect conversation that I desperately needed. I just felt an immense amount of gratitude and it brought colors to my world. Despite the best efforts, sometimes you forget how lucky you are to have friends who love you. I should be grateful and honor their love by loving them back. Endlessly! I could burst out in tears at any moment right now, and I can't wait for my big appointment with Mr. Rogers.
+
+I guess today's theme is gratitude. Here's a passage from one of Sam Harris' meditation app lessons on gratitude that I really like (I listened to it over and over again this morning!)
+>
+> There are at least a billion people on earth at this moment who would consider their prayers answered if they could trade places with you. There are at least a billion people who are suffering debilitating pain, or political oppression, or the acute stages of bereavement.
+>
+> To have your health—even just sort-of. To have friends—even only a few. To have hobbies or interests, and the freedom to pursue them. To have spent this day free from some terrifying encounter with chaos is to be lucky. Just look around you, and take a moment to feel how lucky you are. You get another day to live on this earth. Enjoy it.
+
+[3:38 PM] Mr. Rogers was 10 minutes late to the appointment, and by then I was already in desperation mode. I had seen _her_ laughing with another opposite-sex freind an hour prior, which drove me in a state of destitute, and found myself seeking Sam Harris' help once again. Mr. Rogers had already made a negative impression last time with constant checking of his watch, and now he was late to helping this damn, messed up soul. 
+
+But it turns out I had no reason to fret. While we ran short on therapy time due to delayed start, he was quick to identify all my problems, including my inability to forgive myself, and have endless chain of thought. He offered a techinque for reprogramming our preconceived notion on how to deal with problems, and reassesing readjusted beliefs. I am to keep a daily log of whenever I fall into these loopholes. 
+
+But the highlihgt of the session was when he brought up mindfulness as a tool to be cognizant of our thoughts. Of course mindfulness and meditaiton are skills I have been trying to master myself for a while (with no avail), but it made a world of a difference, when he brought it up and led the discussion himself. I was truly surprised to see that meditation used in a professional psychotherapy session, but heck, what do I know? I just couldn't be happier. I was ecstatic. He led the guided meditation for 20 minutes, and it was magical. He was reading off of a script, but it wasn't anything like what's offered on Sam Harris' meditation app. And believe me, I'm a total Sam Harris fanboy. I truly felt like I was having a spiritual moment with my consciousness, where my mind could travel to any time and space Mr. Rogers asked me to. He asked me to sit by a river, under a tree, with my back against the tree trunk. I obliged, and smelled the tree, the river, the grass. I smelled Snoqualime Falls.
+
+At the end of the session, I felt like I could see colors again once more, and my scatter-brained self had calmed down. I was no longer fuming in jealousy and outrage from seeing _her_ with another guy (that I'm certain she's interested in now). But instead I could smell and see colors. My mind still does wonder, but now I feel empowered enough to catch my thought, and revert back to empty normalcy, if needed. It was a magical first session.
+
+Mr. Rogers for sure is not without flaws. He hardly gave me space to talk. But it was all okay, because I felt healed. I'm probably jumping the gun, and cursing myself with this pouring of postivity, but I can't deny that happy and full of optimism.
+
+I am grateful for Brian. 
+
 ## March 28, 2019
 ### Mental Pain: 5 Physical Pain: 0 Sleep Hours: 10:30 PM ~ 6:00 AM
 
@@ -5,7 +28,7 @@
 
 I talked to my friend Niki on the phone yesterday for our weekly mental health check-ins. She is so kind and caring. For someone who is a few years younger than, she is so much wiser and more mature. We talked about my horrendous week, dictated by the steroid. She gave me medical advice that my sports doc failed to mention. She told me to keep track of my schedule, because prescriptions often have debilitating effects on the circadian rhythm. So, I'm keeping track of them now. We also talked about how to fight loneliness. Like the song by Wilco. 
 
-I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted a Kaya because of the mental pain. I haven't heard back yet.
+I'm in class. I should be teaching, but instead I'm writing here. I'm such a shitty person. I texted Kaya because of the mental pain. I haven't heard back yet.
 
 [11:14 AM] The storm is strong at the moment. I don't know what to do in my office other than feeling hopeless. Gotta say my prayer to myself:
 
@@ -40,6 +63,8 @@ I'm in class. I should be teaching, but instead I'm writing here. I'm such a shi
 > so give me that hitter on Monday.
 
 I don't know. It sucks. But I don't know what else I should be doing. 
+
+[3:45 PM] I was having severe anxiety and depression, so out of pure whim, I decided to open up Sam Harris' Waking Up meditation app that I hadn't used since probably last December. It was just a 10 minute guided meditation, but the effect was profound, and I'm so glad I did it. I feel calmer. More conscientous. Freer. It's embarassing that I failed to remember the stark impact meditaiton has on one's life. It's so important to take a few minutes out of your day for yourself, and meditaiton is the tool to do that. Why didn't I do this yesterday? The day before? Whenever I was feeling the storm? I look at the damn phone every single minute already! I feel like I can go on with my day now. Wow. What a change. I can't wait to meditate tomorrow.
 
 ## March 27, 2019
 ### Mental Pain: 1 Physical Pain: 0
