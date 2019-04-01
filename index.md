@@ -1,3 +1,17 @@
+## March 31, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 7:30 AM
+
+[6:17 PM] The world is so crazy. It's so full of beautiful people and shitty people. I made a friend today and also discovered that someone who I thought could be a friend to be a shitty one. I will save the shitty story for later, however.
+
+A classmate of mine and I were to tackle a programming assignment. She is someone who comes a different with a background that is completely unlike mine. A polar opposite human being. We met up at the cafe that I frequent to work on the assignment. When nothing seemed clear or near, we gave up. Both exhuasted from staring at computer screen, out of the blue, I asked if she wanted to go for a walk (afterall it was a beautiful day, at almost 60 degrees). To much of my surprise, she happily agreed. What was supposed to be a 10 minute walk around a short trail, turned into a long loop around town, two loops around town, and another loop on a trail we had never taken or seen before. We chatted endlessly, as if we were catching up as old friends. It was a beautiful moment, and I discovered a new found appreciation for this classmate of mine. I am grateful to be her new friend, and a new walking buddy. It's rare moments like this when I can I fall in love with life again.
+ 
+## March 30, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
+
+[8:27 AM] I overslept today. Not good. 
+
+[6:55 PM] My day started slow. I was feeling a bit down, so I went straight to the cafe to work on my programming assignment. I didn't finish. I left the cafe, and went to the nearest pet store to pick up cat food. That didn't change the overall mood of my day. When I got home, I bummed around, went to the taco truck, and ate on the balcony. While I was eating, I got to look at my house entrance way from a new angle. I noticed that the ground was covered in months and months of fall leaves, now wet and dirty. I also realized that my small gardening areas were not even visible because of the bed of leaves. At that moment, I got this brilliant idea that I'm going to buy a rake, cleanup the walkway, and tend to my graden. At that moment, I became a master gardener. I drove to the nearest nursery to buy all sorts of seeds. Then I spent the next 3 hours sowing and cleaning the garden in the sun, all the while blasting some House M.D. soundtracks and Latino vibes. I was sweaty and tired, but it was worth every dollar and sweat and most of all, it was truly magical. It was magical to think about all the herbs that I could yield, all the flowers I could prune, and all the bees that I could bring. It was magical to remember one of Johan Hari's stories about a medical clinic in East London that treated patients suffering from depressoin by creating a collective job of tending to a garden. It was magical to imagine all the possible beauties of nature that could arise from my garden. It was magical.
+
 ## March 29, 2019
 ### Mental Pain: 1.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 5:30 AM
 
