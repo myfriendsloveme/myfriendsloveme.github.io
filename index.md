@@ -1,4 +1,9 @@
-## March 31, 2019
+## April 2, 2019
+### Mental Pain: 1.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 5:10 AM
+
+[10:45 AM] I woke up rather angry today. I was disappointed with myself once again for failing to wake up earlier. The goal I'm trying to reach is 4:30 AM (as Jocko does and preaches). Also, my subconscious self was full of anger and jealousy, still thinking about _her_. I thought I had learned to use mindfulness to combat these thoughts, but apparently I hadn't and can't seem to utilize this when I'm asleep. Interesting. Because of the less than satifactory start to my day, I had just been down. Just down and unsatisfied and lazy. I wish I could feel better today. Maybe some more mindfulness is what I need.
+
+## April 1, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 6:30 AM
 
 [4:25 PM] I'm failing to wake up on time these days. It's a shame. Today has been an interesting day. Mundane in terms of accomplished work, but interesting in terms of mindfulness. I got some work done in the morning, meditated with Sam, had some meetings, and just carried on with my day. In my tutoring hours, I got to see my new walking buddy again which made me happy. But I also saw _her_ being obnoxiously loud and surrounded by a bunch of dudes an hour later. I had some moments of uneasiness, but I also for some reason, was able to practice mindfulness and successfully deflect my anxiety, jealousy, and depression that come with seeing _her_ with other poeple. I was so happy to see my days of training have finally come through. I even felt kinder today. I interacted with the _guy_ _she_ is into these days and was able to do so compassionately. I wasn't jealous. I was just kind to him. I don't know. 
