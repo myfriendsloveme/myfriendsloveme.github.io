@@ -1,4 +1,9 @@
 ## March 31, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 6:30 AM
+
+[4:25 PM] I'm failing to wake up on time these days. It's a shame. Today has been an interesting day. Mundane in terms of accomplished work, but interesting in terms of mindfulness. I got some work done in the morning, meditated with Sam, had some meetings, and just carried on with my day. In my tutoring hours, I got to see my new walking buddy again which made me happy. But I also saw _her_ being obnoxiously loud and surrounded by a bunch of dudes an hour later. I had some moments of uneasiness, but I also for some reason, was able to practice mindfulness and successfully deflect my anxiety, jealousy, and depression that come with seeing _her_ with other poeple. I was so happy to see my days of training have finally come through. I even felt kinder today. I interacted with the _guy_ _she_ is into these days and was able to do so compassionately. I wasn't jealous. I was just kind to him. I don't know. 
+
+## March 31, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 12:00 PM ~ 7:30 AM
 
 [6:17 PM] The world is so crazy. It's so full of beautiful people and shitty people. I made a friend today and also discovered that someone who I thought could be a friend to be a shitty one. I will save the shitty story for later, however.
