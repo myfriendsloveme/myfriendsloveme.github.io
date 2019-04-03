@@ -1,7 +1,7 @@
 ## April 2, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
 
-[11:02 AM] I woke up much later than my usual time. It's deeply concerning, as I typically consider myself to be an early bird. I guess I could work chalk it up as fatigue from a hard work out the night before, but it seems like a lame excuse. I did wake up much joyful than yesterday, so that's a positive. I got some work done after a quick shower, and went to the usual cafe for a tea and some strawberry scone. Both were delicious. I've been refraining from drinking coffee lately, and have been successful at it for  10 days consecutive days. I feel more human without the constant excess coffee.
+[11:02 AM] I woke up much later than my usual time. It's deeply concerning, as I typically consider myself to be an early bird. I guess I could work chalk it up as fatigue from a hard work out the night before, but it seems like a lame excuse. I did wake up much joyful than yesterday, so that's a positive. I got some work done after a quick shower, and went to the usual cafe for a tea and some strawberry scone. Both were delicious. I've been refraining from drinking coffee lately, and have been successful at it for  10 days consecutive days. I feel more human without the constant excess coffee. Oh, and I also forgot to meditate yesterday.
 
 I wrote a long journal yesterday in one of my classes. I randomly recalled a story about my best friend, that left me teary-eyed. It took a lot to not cry in-class, but I managed ot pull it off. But here is the writing (which I edited heavily today):
 
