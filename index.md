@@ -1,4 +1,13 @@
-## April 2, 2019
+## April 4, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 11:00 PM ~ 7:30 AM
+
+[11:51 AM] Just had another session with Mr. Rogers. We had another guided meditatoin session, but this time was we focused on being mindful of every part of our body. It was relaxing. We also talked about my weird sleeping habit these days. He didn't seem concerned, since it's been going on for only short term.
+
+Mr. Rogers is such a unique guy. He told me today that he's very much a "mind-body-spirit" kind of perosn, as if I couldn't tell. I like it. I love the idea of an old atheist like myself embracing spirituality. Like Sam Harris says, we could be spiritual without being religious...
+
+I feel somewhat spiritual today. I'm writing this moments after our session, on an outdoor bench table, looking over a lot green terrain. It's cloudy at the momemt, but warm enough for me to sit outside and marvel at nature wearing a fleece jacket. 
+
+## April 3, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
 
 [11:02 AM] I woke up much later than usual. It's deeply concerning, especially as I like to boast about being an early bird. I guess I could chalk it up as fatigue from a hard work out the night before, but it seems like a lame excuse. I did wake up much joyful than yesterday, so that's a positive. I got some work done after a quick shower, and went to the usual cafe for a tea and some strawberry scone. Both were delicious. I've been refraining from drinking coffee lately, and have been successful at it for  10 days consecutive days. I feel more human without the constant excess caffeine. Oh, and I also forgot to meditate yesterday.
