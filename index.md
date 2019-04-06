@@ -1,3 +1,8 @@
+## April 5, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: I can't remember 
+
+[5:21 AM] I don't really have much to say today. I received a card from my dear friend, Kaya, which filled me with joy. But the instructions on the card said not to open until I received another package from her. So there's that. I got a haircut, and got to talk to my barber. It was great. It was just a great day overall. I guess if there is one wish, it would be for the weather to be a bit nicer so I can go on walks. 
+
 ## April 4, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 11:00 PM ~ 7:30 AM
 
