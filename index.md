@@ -1,3 +1,8 @@
+## April 6, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
+
+[9:27 AM] I was scheduled to go on another walk with my new walking buddy this morning, but she had to cancel because she wasn't feeling well. I wasn't disappointed though. I felt perfectly okay, actually. We'll walk again some other time. So, here I am at the usual cafe, typing away. I was going to get a chai, but made a conscious decision to just get a healthier alternative: tumeric-ginger tea. I ended up spilling boiling hot tumeric-ginger tea all over hand, however. I didn't feel any pain, but it also wasn't fun. Oh well. It's perfectly sanitizied now. 
+
 ## April 5, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: I can't remember 
 
