@@ -1,3 +1,17 @@
+## April 8, 2019
+### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 7:30 AM
+
+[3:03 PM] I used to write as a coping mechanism. But now that I'm feeling better on most days, I don't know if I have much to write anymore. I failed to write and meditate the last two days. Is it a sign that I don't need help anymore? I don't think I've fully healed. But I think I'm doing a much better job not caring about anything. That seems to be positive. 
+
+I got to talk to my buddy, Nick, yesterday. It was fun catching up. We talked about things we could do as a substitute for his bachelor's party, which I feel obligated to throw. Hiking in Vancouver sounds like a swell idea.
+
+[4:11 PM] I got to talk to my walking buddy today, although it was super brief. My partner in crime, Matt, who does everything with me at school, failed to show up today. I felt a bit lonely. In a surprsing turn of events, muscle pain is back to some degrees. I don't know why. But I have some tenderness in my back and right leg. 
+
+## April 7, 2019
+### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
+
+I didn't write this day.
+
 ## April 6, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
 
