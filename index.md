@@ -5,7 +5,7 @@
 
 I got to talk to my buddy, Nick, yesterday. It was fun catching up. We talked about things we could do as a substitute for his bachelor's party, which I feel obligated to throw. Hiking in Vancouver sounds like a swell idea.
 
-[4:11 PM] I got to talk to my walking buddy today, although it was super brief. My partner in crime, Matt, who does everything with me at school, failed to show up today. I felt a bit lonely. In a surprsing turn of events, muscle pain is back to some degrees. I don't know why. But I have some tenderness in my back and right leg. 
+[4:11 PM] I got to talk to my walking buddy today, although it was super brief. My partner in crime, Matt, who does everything with me at school, failed to show up today. I felt a bit lonely. In a surprsing turn of events, muscle pain is back to some degrees. I don't know why. But I have some tenderness in my back and right leg. I don't think I'm feeling the finest today 
 
 ## April 7, 2019
 ### Mental Pain: 0.5 Physical Pain: 0 Sleep Hours: 10:00 PM ~ 7:30 AM
