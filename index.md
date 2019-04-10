@@ -1,7 +1,7 @@
 ## April 9, 2019
 ### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 7:30 AM
 
-[1:14 PM] There is still tenderness in my body. My muscles have not fully healed. It's unfortunate, but what can I do. I received a beautiful gift from Kaya and AJ yesterday. They sent a card too actually, It came last Friday, but the instructions told me not to open until I received the gift. They sent something called "bamboo blanekt," which 
+[1:14 PM] There is still tenderness in my body. My muscles have not fully healed. It's unfortunate, but what can I do. I received a beautiful gift from Kaya and AJ yesterday. They sent a card too actually, It came last Friday, but the instructions told me not to open until I received the gift. They sent something called "bamboo blanket," which feels like God's tuck job. 
 
 ## April 8, 2019
 ### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 7:30 AM
