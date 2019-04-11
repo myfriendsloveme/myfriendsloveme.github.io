@@ -1,3 +1,14 @@
+## April 11, 2019
+### Mental Pain: 1.0 Physical Pain: 0.5 Sleep Hours: 10:00 PM ~ 6:00 AM
+
+[11:29 AM] I meditated for the first time in days. It feels like a crowning achievement. There are a few things I wanted to write about, but haven't been unable to to do so for whatever reason. A couple days ago, I wanted to write about my dear friends Kaya and AJ. They sent me a blanket that feels like God's personal tuck job. They also sent me a nice card reminding me of how much thye love me. I love them so much. I sent them a gift card to a fancy Italian restaurant in return for their extremely kind gesture. I don't know where I would be without them.
+
+I feel sleepy today. Slightly tired. Disoriented. I woke up super early to get some work done. It wasn't successful. I've been wanting to write more, but now that I have some time to write and think for myself, I feel like I don't have much to talk about. My mood is okay. It's not great, but it's okay. Neither is my back pain. I am starting to believe that I will never regain flexibility in my body. 
+
+Today, I will be meeting with a famous cancer research scientist. But I don't know what to dreally say to him. I don't know.
+
+
+
 ## April 10, 2019
 ### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 8:00 AM
 
