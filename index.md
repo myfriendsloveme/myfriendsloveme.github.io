@@ -1,3 +1,8 @@
+## April 10, 2019
+### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 8:00 AM
+
+[10:12 PM] I'm worried about myself these days... because I'm not writing as much as I used to. I couldn't even finish yesterday's journal entry...
+
 ## April 9, 2019
 ### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 7:30 AM
 
