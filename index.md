@@ -7,7 +7,7 @@ I feel sleepy today. Slightly tired. Disoriented. I woke up super early to get s
 
 Today, I will be meeting with a famous cancer research scientist. But I don't know what to dreally say to him. I don't know.
 
-
+[10:22 PM] Tomorrow, I would like to write in depth about being broken.
 
 ## April 10, 2019
 ### Mental Pain: 1.0 Physical Pain: 1.0 Sleep Hours: 10:00 PM ~ 8:00 AM
