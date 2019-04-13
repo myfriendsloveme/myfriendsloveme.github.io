@@ -1,3 +1,8 @@
+## April 12, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 10:00 PM ~ 6:00 AM
+
+[10:03 AM] No meditation today. No Mr. Rogers today. But I had fun hanging with my buddy, Matt. My friends love me and I love them.
+
 ## April 11, 2019
 ### Mental Pain: 1.0 Physical Pain: 0.5 Sleep Hours: 10:00 PM ~ 6:00 AM
 
