@@ -1,3 +1,13 @@
+## April 14, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 11:00 PM ~ 6:30 AM
+
+[5:25 AM] I don't know why I'm not meditating these days. I need to take some time to write for myself. 
+
+## April 13, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 10:00 PM ~ 6:00 AM
+
+I didn't write this day.
+
 ## April 12, 2019
 ### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 10:00 PM ~ 6:00 AM
 
