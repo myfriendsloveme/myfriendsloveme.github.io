@@ -1,3 +1,8 @@
+## April 15, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 11:00 PM ~ 6:30 AM
+
+[3:48 PM] It's almost like I don't know what to say anymore. I need to lock myself up in a room to write again. I can only see this as a sign of improvement. 
+
 ## April 14, 2019
 ### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 11:00 PM ~ 6:30 AM
 
