@@ -1,3 +1,13 @@
+## April 17, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 12:00 PM ~ 7:30 AM
+
+[8:37 PM] Overslept. Didn't write. Didn't meditate the last two days. I don't know what's wrong with me. Once my schedule opens up, I want to go on a meditative trip and just write. 
+
+## April 16, 2019
+### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 11:00 PM ~ 5:30 AM
+
+I didn't write this day.
+
 ## April 15, 2019
 ### Mental Pain: 0.5 Physical Pain: 0.5 Sleep Hours: 11:00 PM ~ 6:30 AM
 
