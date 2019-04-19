@@ -1,4 +1,4 @@
-## April 17, 2019
+## April 18, 2019
 ### Mental Pain: 1.5 Physical Pain: 1.0 Sleep Hours: 12:00 PM ~ 6:00 AM
 
 [8:13 PM] Another bad day. What's even worse is that my back pain seems to have gotten worse lately. Also, I'm full of anger and jealousy. I feel the storm a little. I must walk around some more. 
