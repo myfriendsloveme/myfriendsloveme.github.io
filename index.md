@@ -4,12 +4,14 @@
 [8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. I believe that the Summer is the time of the year to get stronger. It's the off-season. It's when you achieve things you weren't able to in the regular season. I'm sure I can create a much longer list, but (and they need to be a little bit more concrete), but here they are for now. 
 
 * Wake up at 4:30 AM
+* Meditate Daily
+* Stretch
 * Handstand pushups
+* Max out on fitness goals: bench press, diamond pushups, dips, curls, leg raises (in order)
 * Learn basic jazz guitar progressions and master chords
 * Lower BMI (No artificial sugar diet for at least the month of May)
 * Chess.com rating improvement (to 1500 by the end of the summer)
 * Research accomplishments: At least come close to finishing two papers
-* Meditate Daily
 * Journal more often
 * Become frugal
 
