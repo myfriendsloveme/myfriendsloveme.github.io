@@ -3,6 +3,7 @@
 
 [8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. They need to be a little bit more concrete.
 
+* Wake up at 4:30 AM
 * Handstand pushups
 * Learn basic jazz guitar progressions and master chords
 * Lower BMI (No artificial sugar diet for at least the month of May)
