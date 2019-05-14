@@ -1,7 +1,7 @@
 ## May 13, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 12:00 PM ~ 8:00 AM
 
-[8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. They need to be a little bit more concrete.
+[8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. I believe that the Summer is the time of the year to get stronger. It's the off-season. It's when you achieve things you weren't able to in the regular season. I'm sure I can create a much longer list, but (and they need to be a little bit more concrete), but here they are for now. 
 
 * Wake up at 4:30 AM
 * Handstand pushups
