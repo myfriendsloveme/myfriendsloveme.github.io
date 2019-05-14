@@ -1,3 +1,25 @@
+## May 13, 2019
+### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 12:00 PM ~ 8:00 AM
+
+[8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. They need to be a little bit more concrete.
+
+* Handstand pushups
+* Learn basic jazz guitar progressions and master chords
+* Lower BMI (No artificial sugar diet for at least the month of May)
+* Chess.com rating improvement (to 1500 by the end of the summer)
+* Research accomplishments: At least come close to finishing two papers
+* Meditate Daily
+* Journal more often
+* Become frugal
+
+And here are my daily reminders:
+
+* Kinder everyday
+* Stronger everyday 
+* Tell your friends you love them
+* Because they love you 
+* Determinism plus randomness
+
 ## April 18, 2019
 ### Mental Pain: 1.5 Physical Pain: 1.0 Sleep Hours: 12:00 PM ~ 6:00 AM
 
