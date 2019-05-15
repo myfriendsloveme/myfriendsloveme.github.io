@@ -1,4 +1,30 @@
 ## May 13, 2019
+### Mental Pain: 0 Physical Pain: 3.0 Sleep Hours: 12:00 PM ~ 8:00 AM
+
+[6:12 PM] I pulled another muscle yesterday. I was working on my goal of perofriming a handstand pushup, but ended up pulling a muscle. The frequency of innjuries I suffer unfortunately seems to increase as I get older. The mankind has worked forever to defy death. Defy aging. But it's always been futile. I seem to be no exception. I worry that my back will never be the same. I worry that I will never be as athletic as I used to be. I worry that my personal fitness goals have shattered before I could even begin. It's truly dejectintg. However, I haven't lost my drive. The Summer is here, and I am full of aspirations.
+
+I wrote a clumsy list yesterday, but here is a more organized list of things I want to achieve and how I will achieve them:
+
+1. I want to be accomplished: I want to publish a lot of quality articles to break into academy. 
+ * This will entail working on research every day 8 hours a week, with a **4 hour split on the two projects for the next 6 months**.          
+2. I want to be stronger. 
+ * That will entail waking up early in the morning **(4:30 AM), exercising at least 6 times a week, keeping track of the BMI and progress.**
+ * Split the workout days by alternating between upper and lower body exercises. For the upper body, max out on fitness goals: bench press, diamond pushups, dips, curls, leg raises (in order). For the lower body, squat, run, and do planks as needed.
+ * **Cut down on sugar.** You can have one cheat day every two weeks. 
+3. I want to improve on my artistic side: Jazz guitar
+ * **Practice at least 40 minutes a day**
+4. I want to be kinder.
+ * **Walk dogs at least once a week.** 
+5. I want to be frugal.
+ * Spend only what's needed. Always explore alternative options.
+6. I want to improve on my mind, body and spirit.
+ * Hike or walk at least once a week.
+ * **Jouranl every day.**
+ * **Meditate every day.** Before breakfast is generally a good time to meditate. 
+
+I don't think this list is exhaustive. I am motivated. I have a lot of ambitions. I have excluded my chess goal, as it is not a prioirty in my life anymore. It's a form of relaxation. We'll see where this goes. I am excited to start these fancy goals starting now.
+
+## May 13, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 12:00 PM ~ 8:00 AM
 
 [8:59 PM] I haven't written in almost a month. But I feel rejuvenated. In fact, I don't know where to begin to keep things updated. School's out, and the Summer has started. I have a whole bunch of new goals set out to achieve, and they are primarily focused around self-betterment. So that way, I can be even happier. I believe that the Summer is the time of the year to get stronger. It's the off-season. It's when you achieve things you weren't able to in the regular season. I'm sure I can create a much longer list, but (and they need to be a little bit more concrete), but here they are for now. 
