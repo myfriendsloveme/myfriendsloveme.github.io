@@ -1,4 +1,22 @@
-## May 13, 2019
+## May 14, 2019
+### Mental Pain: 0 Physical Pain: 3.0 Sleep Hours: 12:00 PM ~ 8:00 AM
+
+[5:53 PM] I keep finding myself in a vicious cycle. I don't have too many obligations, now it's the Summer. This relaxed pace puts me in  a constant state of boredom. Boredom leads to me thinking about other things, like hatred for some people. I find all of these so problematic. I understand that mindfulness is the tool I should be employing here. But I'm only human. 
+
+Today's accomplishments:
+
+* Meditated
+* No sugar
+* Journal 
+* No spending
+* Working out
+
+Today's failures:
+
+* Waking up at 4:30 AM 
+* 4 + 4 hours of research
+
+## May 14, 2019
 ### Mental Pain: 0 Physical Pain: 3.0 Sleep Hours: 12:00 PM ~ 8:00 AM
 
 [6:12 PM] I pulled another muscle yesterday. I was working on my goal of perofriming a handstand pushup, but ended up pulling a muscle. The frequency of innjuries I suffer unfortunately seems to increase as I get older. The mankind has worked forever to defy death. Defy aging. But it's always been futile. I seem to be no exception. I worry that my back will never be the same. I worry that I will never be as athletic as I used to be. I worry that my personal fitness goals have shattered before I could even begin. It's truly dejectintg. However, I haven't lost my drive. The Summer is here, and I am full of aspirations.
@@ -16,7 +34,7 @@ I wrote a clumsy list yesterday, but here is a more organized list of things I w
 4. I want to be kinder.
  * **Walk dogs at least once a week.** 
 5. I want to be frugal.
- * Spend only what's needed. Always explore alternative options.
+ * **Spend only what's needed.** Always explore alternative options.
 6. I want to improve on my mind, body and spirit.
  * Hike or walk at least once a week.
  * **Jouranl every day.**
