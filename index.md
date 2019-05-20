@@ -1,3 +1,8 @@
+## May 20, 2019
+### Mental Pain: 0 Physical Pain: 2.0 Sleep Hours: 12:00 PM ~ 8:00 AM
+
+[12:42 PM] I couldn't write much because I was traveling. Oh well. I'm listening to the audiobook of one of Haruki Murakami books, "Kafka on the Shore." Meditation, no sugar, frugality, and work out regimes are going well though. 
+
 ## May 14, 2019
 ### Mental Pain: 0 Physical Pain: 3.0 Sleep Hours: 12:00 PM ~ 8:00 AM
 
