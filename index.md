@@ -1,4 +1,9 @@
 ## May 20, 2019
+### Mental Pain: 0 Physical Pain: 2.0 Sleep Hours: 1:00 AM ~ 9:00 AM
+
+[3:03 PM] I am suffering from severe allergies that have left me completely disoriented for a week. It's insane. I can't open my eyes in the morning, and when I take any medication, I just pass out. This has been an unfortunate waste of time for me. Very unfortunate.
+
+## May 20, 2019
 ### Mental Pain: 0 Physical Pain: 2.0 Sleep Hours: 12:00 PM ~ 8:00 AM
 
 [5:58 PM] Lazy, stressful day
