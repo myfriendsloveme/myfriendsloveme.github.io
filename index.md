@@ -1,4 +1,11 @@
-## May 20, 2019
+## May 26, 2019
+### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 9:00 AM
+
+[3:16 PM] I went on a hike yesterday after the journal entry. It was a place called, "Wawawai County Park." It was beautiful and worth every effort to get there. I got to meditate, overlooking this huge river. I felt like I was really connecting with mother nature. I want to go there again.
+
+I walked some dogs this morning, as part of my self-improvement program. Service is importnat! There is no thrill like being dragged by a bunch of crazy, hyper-energetic dogs. The last two days were just perfect in terms of mental health. I have this imagination of raising a bunch of money for the shelter this year by twisting the arms of the math department. We'll see how it goes. 
+
+## May 25, 2019
 ### Mental Pain: 0 Physical Pain: 2.0 Sleep Hours: 1:00 AM ~ 9:00 AM
 
 [3:03 PM] I am suffering from severe allergies that have left me completely disoriented for a week. It's insane. I can't open my eyes in the morning, and when I take any medication, I just pass out. This has been an unfortunate waste of time for me. Very unfortunate.
