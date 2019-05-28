@@ -1,3 +1,8 @@
+## May 27, 2019
+### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
+
+[10:39 PM] I'm writing this as I'm shitting in the bathroom. I had a good day. I finally finished a project I had promised to finish months ago. Now I've finally finished it, I feel like I can accomplish anything. I got a good lower body workout in, (100 weighted squats, 40 crunch-ishes), had a healthy protein-packed vegan burrito, and washed dishes. Now, I'm shitting in the bathroom, and I feel greatttttt.
+
 ## May 26, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 9:00 AM
 
