@@ -1,3 +1,8 @@
+## May 29, 2019
+### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
+
+[9:26 PM] I'm meditating and hiking and working out like crazy. My mind, body, spirit are in great place. Fabulous place. Now I feel like I can conquer the world. I would like to sit down though and figure out my yearly goals though. I need something tangible to show for this year and next year. I'm approaching 28. I need to conquer this motherfucking world soon.
+
 ## May 27, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
 
