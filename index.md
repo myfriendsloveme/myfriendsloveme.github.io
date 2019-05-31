@@ -1,3 +1,8 @@
+## May 30, 2019
+### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
+
+[9:36 PM] I need to refer back to the goals I set out for myself. Because I'm failing to achieve them all. I was happy to receive a call from my buddy Julian today though. He was kind of enough to randomly check in on me. He's such a sweet person.
+
 ## May 29, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
 
