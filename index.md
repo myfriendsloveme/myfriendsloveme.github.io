@@ -1,3 +1,10 @@
+## June 1, 2019
+### Mental Pain: 2 Physical Pain: 3.0 Sleep Hours: 11:00 PM ~ 8:30 AM
+
+[1:56 PM] I had a trying few days. My back was hurting more than usual, so I saw a sports doctor, different from the previous one. He dropped some sober knowledge, that I will have my back problem for a very long time. In fact, he seems to think that it will be a chronic pain. I was sad. Very sad.
+
+I thought about drinking again for the first time in a while. I'm not gonna relapse. But it's been so disheartening knowing that I will have this back issue forever. 
+
 ## May 30, 2019
 ### Mental Pain: 0 Physical Pain: 1.0 Sleep Hours: 1:00 AM ~ 7:00 AM
 
