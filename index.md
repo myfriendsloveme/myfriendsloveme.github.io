@@ -1,3 +1,8 @@
+## June 17, 2019
+### Mental Health: 8.0 Physical Health: 7.0
+
+[12:23 AM] I had been meditating for a while now, but my inner demon hasn't gone away. I realized that mindfulness is a merely a tool for redirecting or channeling thoughts. But the past doesn't go away because you practice mindfulness. It's still there. I had been fighting my demon the last few anger-filled weeks. It hasn't been great. Jealousy, sense of betrayal, guilt, disappointment, regret... All these things are intertwined somehow, rolled in a ball and hidden away for now. But my subconscious knows where I put it, despite my endless practice of mindfulness. And now, I think I fully embrace that. I can't change who I am. I'm still me. The shitty guy who fucked up a whole bunch in the past, but still manages to fuck up somehow. Looking around though, I wouldn't have it any other way. I look at friends around me with perfect lives and families with absolutely no struggles in their lives. No one's gone through trials and tribulations like me. And I like that, and I'm proud of that.
+
 ## June 1, 2019
 ### Mental Pain: 2 Physical Pain: 3.0 Sleep Hours: 11:00 PM ~ 8:30 AM
 
